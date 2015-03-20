@@ -7,10 +7,15 @@ Things that Chris likes;
 * Tools
 * Vibrant Colours
 * Series of Books with consistency
+>
 
-I began to sketch some quick ideas.  The initial ideas that came to me  mostly revolved around brains and speech bubbles.  The idea to combine the brain and the speech bubble was to signify the fact that Chris would be talking knowledgably and represents the talks and classes he would speak at. 
+I began to sketch some quick ideas.  The initial ideas that came to me  mostly revolved around brains and speech bubbles.  The idea to combine the brain and the speech bubble was to signify the fact that Chris would be talking knowledgably and represents the talks and classes he would speak at.  
 
-<img src="http://imgur.com/5uzgWsh,w8vT7O1,80q6NtS,C15ZTZH,NH1Yvsl,AboMEYq#5.jpg">
+<img src="http://i.imgur.com/AboMEYq.jpg">
+<img src="http://i.imgur.com/NH1Yvsl.jpg">
+<img src="http://i.imgur.com/C15ZTZH.jpg">
+
+
 Another idea was to show Chris as the classic piece 'The Vetruvian Man' by Da Vinci.  The sketch showed Chris holding different things in his hands that represented him such as coffeee, swearwords, an Iphone and a brain.  Another idea showed a lightbulb with the letters 'FSCK' which mean 'file system consistency check'.  This is a tool for checking the consistency of a file system in Unix and Unix-like operating systems, such as Linux and Mac OS X.  It's also something that Chris has a lot of interest in as he has the letters tattooed onto his arm.  
 
 On my one on one meeting with Chris I tried to think of some questions to ask him.  I created a word document containing some of the ideas I had sketched with some visual representations of images from the Internet.  I asked him a few questions;
