@@ -13,13 +13,20 @@ I began to sketch some quick ideas.  The initial ideas that came to me  mostly r
 On my one on one meeting with Chris I tried to think of some questions to ask him.  I created a word document containing some of the ideas I had sketched with some visual representations of images from the Internet.  I asked him a few questions;
 
 Would you prefer a dark of light colour scheme?
+
 Definitely lighter
 
+
 Do you want a lot of focus on swearing?
+
 No, I don't want to make it overpowering.
 
+
 Do you like the concept of brains?
+
 No, I find that brains are almost sickening.  They sort of seem like they would put you off food.
+
+
 
 Moving on from the ideas of brains we started to discuss Neuroimaging.  I had an idea to create a series of books designed around Neuroimaging.  My plan was to have a short series of books with a head on each.  Each head would have a different area of the brain lit up.  Chris liked this idea and he said it reminded him of the old fashioned sketches of heads with each different area of the brain labelled.  We began to researched and discovered this was called Phrenology and decided I could create a series of books based around Phrenology using the same concept as the Neuroimaging idea.  
 
