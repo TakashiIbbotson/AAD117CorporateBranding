@@ -12,17 +12,17 @@ I began to sketch some quick ideas.  The initial ideas that came to me  mostly r
 
 On my one on one meeting with Chris I tried to think of some questions to ask him.  I created a word document containing some of the ideas I had sketched with some visual representations of images from the Internet.  I asked him a few questions;
 
-Would you prefer a dark of light colour scheme?
+**Would you prefer a dark of light colour scheme?**
 
 Definitely lighter
 
 
-Do you want a lot of focus on swearing?
+**Do you want a lot of focus on swearing?**
 
 No, I don't want to make it overpowering.
 
 
-Do you like the concept of brains?
+**Do you like the concept of brains?**
 
 No, I find that brains are almost sickening.  They sort of seem like they would put you off food.
 
