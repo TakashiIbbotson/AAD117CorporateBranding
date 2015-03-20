@@ -56,4 +56,7 @@ After my meeting with Chris I began to sketch a further idea for the books.  I r
 
 <img src="http://snag.gy/pzqIA.jpg">
 
+I then began to work on my logo and wordmark.  I wanted to keep the idea of the head with the brain but because Chris didn't like the realistic approach to a brain I decided to use lines.  I drew out some sketches of different styles using Phrenology and more abstract approaches.  In the end the more abstract approach seemed like a better idea because the Phrenology looked messy.  I furthered my design and then I began to create it.  Eventually I came up with a logo that I liked.
 
+
+I then moved on to creating my wordmark.  I tried sketching out some Serif and Sans Serif typefaces and eventually decided that Serif looked more professional.  I chose a typeface and tried to decided how to combine the two. 
